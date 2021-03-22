@@ -1,4 +1,6 @@
-### Hi there 👋
+![WeSmart](https://i.imgur.com/OT4ssrG.gif)
+![WeSmart](https://i.imgur.com/OT4ssrG.gif)
+![WeSmart](https://i.imgur.com/OT4ssrG.gif)
 
 <!--
 **BlTWISE/BlTWISE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
